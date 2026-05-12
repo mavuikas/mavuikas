@@ -1,7 +1,7 @@
 
 <div align="center">
    
-##### "Let your flame burn brighter, can't you see it's now or never?"
+##### <img src="https://files.catbox.moe/8127ya.gif"/> " Head into the light, I'll stay by your side -- I never will let you go ! " <img src="https://files.catbox.moe/8127ya.gif"/>
 
  </div>
 
@@ -12,7 +12,7 @@
 
 <div align="center">
 
-### LINKS !!
+##### LINKS !!
    ###### '   <a href="https://rentry.org/mavuikss" target="_blank">RENTRY</a>    '   <a href="https://mavuikaistic.straw.page/" target="_blank">STRAWPAGE</a>   '   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  '
 <p align="center">
 
