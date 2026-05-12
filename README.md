@@ -1,18 +1,19 @@
 
 <div align="center">
    
-### "Let your flame burn brighter, can't you see it's now or never?"
+##### "Let your flame burn brighter, can't you see it's now or never?"
 
  </div>
 
 <p align="center">
-     <img src="https://files.catbox.moe/m81hdd.PNG"/>
+     <img src="https://file.garden/aVs3PFllln9k2JK1/Untitled224_20260511172157.png"%7Bwidth=500px
+        height=500px}/>
 </p>
 
 <div align="center">
 
-#### LINKS !!
-   #### '   <a href="https://rentry.org/mavuikss" target="_blank">RENTRY</a>    '   <a href="https://mavuikaistic.straw.page/" target="_blank">STRAWPAGE</a>   '   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  '
+### LINKS !!
+   ###### '   <a href="https://rentry.org/mavuikss" target="_blank">RENTRY</a>    '   <a href="https://mavuikaistic.straw.page/" target="_blank">STRAWPAGE</a>   '   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  '
 <p align="center">
 
 <p align="center">
