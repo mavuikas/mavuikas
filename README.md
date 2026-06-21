@@ -1,19 +1,18 @@
 
 <div align="center">
    
-##### <img src="https://files.catbox.moe/8127ya.gif"/> " Head into the light, I'll stay by your side -- I never will let you go ! " <img src="https://files.catbox.moe/8127ya.gif"/>
+##### <img src="https://files.catbox.moe/7jnb96.gif"/> " Your unwavering support and love is what keeps my heart soaring and my voice going! " <img src="https://files.catbox.moe/7jnb96.gif"/>
 
  </div>
 
 <p align="center">
-     <img src="https://file.garden/aVs3PFllln9k2JK1/Untitled224_20260511172157.png"%7Bwidth=500px
-        height=500px}/>
+     <img src="https://files.catbox.moe/0ahx2l.PNG"/>
 </p>
 
 <div align="center">
 
-##### LINKS !!
-   ###### '   <a href="https://rentry.org/mavuikss" target="_blank">RENTRY</a>    '   <a href="https://mavuikaistic.straw.page/" target="_blank">STRAWPAGE</a>   '   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  '
+#### LINKS !!
+   ##### '   <a href="https://rentry.org/mavuikss" target="_blank">RENTRY</a>    '   <a href="https://mavuikaistic.straw.page/" target="_blank">STRAWPAGE</a>   '   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  '
 <p align="center">
 
 <p align="center">
