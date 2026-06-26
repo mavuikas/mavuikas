@@ -1,7 +1,13 @@
 
 <div align="center">
    
-##### <img src="https://files.catbox.moe/7jnb96.gif"/> " Your unwavering support and love is what keeps my heart soaring and my voice going! " <img src="https://files.catbox.moe/7jnb96.gif"/>
+### <img src="https://files.catbox.moe/7jnb96.gif"/> " Your unwavering support and love is what keeps my heart soaring and my voice going! " <img src="https://files.catbox.moe/7jnb96.gif"/>
+
+</div>
+<div align="center">
+   
+##### the coolest ever:
+###### <a href="https://github.com/httpsfork" target="_blank">FORK</a> ' <a href="https://github.com/reiningcloud" target="_blank">REI/JUNE</a> ' <a href="https://github.com/afterpain" target="_blank">TISSUE</a> ' <a href="https://github.com/Jagstle" target="_blank">JAG</a>
 
  </div>
 
