@@ -7,7 +7,7 @@
 <div align="center">
    
 ##### the coolest ever:
-###### <a href="https://github.com/httpsfork" target="_blank">FORK</a> ' <a href="https://github.com/reiningcloud" target="_blank">REI/JUNE</a> ' <a href="https://github.com/afterpain" target="_blank">TISSUE</a> ' <a href="https://github.com/Jagstle" target="_blank">JAG</a>
+###### <a href="https://github.com/httpsfork" target="_blank">FORK</a> ' <a href="https://github.com/reiningcloud" target="_blank">REI/JUNE</a> ' <a href="https://github.com/afterpain" target="_blank">TISSUE</a> ' <a href="https://github.com/Jagstle" target="_blank">JAG</a> ' <a href="https://github.com/batciel" target="_blank">LUC</a> 
 
  </div>
 
