@@ -1,7 +1,7 @@
 
 <div align="center">
    
-### <img src="https://files.catbox.moe/7jnb96.gif"/> " Your unwavering support and love is what keeps my heart soaring and my voice going! " <img src="https://files.catbox.moe/7jnb96.gif"/>
+### <img src="https://files.catbox.moe/7jnb96.gif"/> " Time for more snow damselettes... " <img src="https://files.catbox.moe/7jnb96.gif"/>
 
 </div>
 <div align="center">
@@ -12,7 +12,7 @@
  </div>
 
 <p align="center">
-     <img src="https://files.catbox.moe/0ahx2l.PNG"/>
+     <img src="https://file.garden/aVs3PFllln9k2JK1/sandrones.png"/>
 </p>
 
 <div align="center">
