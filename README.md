@@ -12,8 +12,7 @@
  </div>
 
 <p align="center">
-     <img src="https://files.catbox.moe/rcqph8.gif"%7Bwidth=950px
-        height=500px}/>
+     <img src="https://files.catbox.moe/rcqph8.gif"/>
 </p>
 
 <div align="center">
