@@ -1,7 +1,7 @@
 
 <div align="center">
    
-###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " The sun never sets here. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
+###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " The stars will continue to shine and THEY continue to loom over, but to Trailblaze is to keep going! " <img src="https://files.catbox.moe/1dkzgx.gif"/>
 
 </div>
 <div align="center">
@@ -12,7 +12,7 @@
  </div>
 
 <p align="center">
-     <img src="https://files.catbox.moe/rcqph8.gif"/>
+     <img src="https://file.garden/aVs3PFllln9k2JK1/Untitled288_20260723175721.png"/>
 </p>
 
 <div align="center">
