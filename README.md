@@ -7,12 +7,12 @@
 <div align="center">
    
 ##### the coolest ever:
-###### <a href="https://github.com/httpsfork" target="_blank">fork</a> ៸៸ <a href="https://github.com/reiningcloud" target="_blank">rei</a> ៸៸ <a href="https://github.com/afterpain" target="_blank">tissue</a> ៸៸ <a href="https://github.com/Jagstle" target="_blank">jag</a> ៸៸ <a href="https://github.com/dainkissed" target="_blank">luc</a> 
+###### <a href="https://github.com/httpsfork" target="_blank">fork</a> ៸៸ <a href="https://github.com/reiningcloud" target="_blank">rei</a> ៸៸ <a href="https://github.com/afterpain" target="_blank">tissue</a> ៸៸ <a href="https://github.com/Jagstle" target="_blank">jag</a> ៸៸ <a href="https://github.com/dainkissed" target="_blank">luc</a> ៸៸ <a href="https://github.com/duxlucens" target="_blank">fayne</a>
 
  </div>
 
 <p align="center">
-     <img src="https://file.garden/aVs3PFllln9k2JK1/Untitled288_20260723175721.png"/>
+     <img src="https://file.garden/aVs3PFllln9k2JK1/Untitled290_20260730224816.PNG"/>
 </p>
 
 <div align="center">
@@ -22,6 +22,3 @@
 
 <p align="center">
 
-   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=nx8bgtnbrwk2ufic6r8hap4rw&cover_image=true&theme=spotify-embed&show_offline=true&background_color=210808&interchange=true&profanity=false&hide_remaster=false&mode=dark&bar_color=c23838&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-  </a>
-</p>
