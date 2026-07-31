@@ -1,7 +1,7 @@
 
 <div align="center">
    
-###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " The stars will continue to shine and THEY continue to loom over, but to Trailblaze is to keep going! " <img src="https://files.catbox.moe/1dkzgx.gif"/>
+###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " If this everlasting winter won't serve solace, it'll be death. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
 
 </div>
 <div align="center">
