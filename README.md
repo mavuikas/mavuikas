@@ -1,4 +1,4 @@
-
+<div align="center">
    
 ###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " If this everlasting winter won't serve solace, it'll be death. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
 
