@@ -1,12 +1,4 @@
-<div align="center">
 
-#### HIII, THATS ME!
-
-<img src="https://file.garden/aVs3PFllln9k2JK1/Screenshot%202026-08-07%20at%209.15.08%E2%80%AFPM.png"/>
-
-</div>
-
-<div align="center">
    
 ###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " If this everlasting winter won't serve solace, it'll be death. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
 
@@ -28,4 +20,14 @@
 <p align="center">
 
 <p align="center">
+
+<div align="center">
+
+#### HIII, THATS ME!
+
+<img src="https://file.garden/aVs3PFllln9k2JK1/Screenshot%202026-08-07%20at%209.15.08%E2%80%AFPM.png"/>
+
+</div>
+
+<div align="center">
 
