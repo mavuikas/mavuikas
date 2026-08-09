@@ -16,7 +16,7 @@
 
 <div align="center">
 
-   #### '   *<a href="https://rentry.org/HlMEKONOVA" target="_blank">RENTRY</a>    ៸៸   <a href="https://mavuikaistic.straw.page/" target="_blank">STRAWPAGE</a>   ៸៸   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  ៸៸ '*
+   #### '   *<a href="https://rentry.org/astheblazingsun" target="_blank">RENTRY</a>    ៸៸   <a href="https://mavuikaistic.straw.page/" target="_blank">STRAWPAGE</a>   ៸៸   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  ៸៸ '*
 <p align="center">
 
 <p align="center">
