@@ -6,7 +6,7 @@
 <div align="center">
    
 ##### the coolest ever:
-###### <a href="https://github.com/httpsfork" target="_blank">fork</a> ៸៸ <a href="https://github.com/reiningcloud" target="_blank">rei</a> ៸៸ <a href="https://github.com/afterpain" target="_blank">tissue</a> ៸៸ <a href="https://github.com/Jagstle" target="_blank">jag</a> ៸៸ <a href="https://github.com/dainkissed" target="_blank">luc</a> ៸៸ <a href="https://github.com/duxlucens" target="_blank">fayne</a>
+###### <a href="https://github.com/httpsfork" target="_blank">fork</a> ៸៸ <a href="https://github.com/reiningcloud" target="_blank">rei</a> ៸៸ <a href="https://github.com/afterpain" target="_blank">tissue</a> ៸៸ <a href="https://github.com/Jagstle" target="_blank">jag</a> ៸៸ <a href="https://github.com/dainkissed" target="_blank">luc</a> ៸៸ <a href="https://github.com/duxlucens" target="_blank">fayne</a> ៸៸ <a href="https://github.com/dttore" target="_blank">angel</a>
 
  </div>
 
