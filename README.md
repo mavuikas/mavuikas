@@ -1,6 +1,6 @@
 <div align="center">
    
-###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " If this everlasting winter won't serve solace, it'll be death. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
+###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " Wanna go on a spin? Here! Hop on. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
 
 </div>
 <div align="center">
@@ -11,9 +11,8 @@
  </div>
 
 <p align="center">
-     <img src="https://file.garden/aVs3PFllln9k2JK1/Untitled290_20260730224816.PNG"/>
+   <img src="https://files.catbox.moe/2volll.png"%7Bwidth=828px height=828px}/>
 </p>
-
 <div align="center">
 
    #### '   *<a href="https://mavuikaistic.carrd.co/#" target="_blank">CARRD</a>    ៸៸   <a href="https://mavuikaistic.straw.page/" target="_blank">STRAWPAGE</a>   ៸៸   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  ៸៸ '*
