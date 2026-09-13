@@ -1,6 +1,6 @@
 <div align="center">
    
-###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " I will continue to run, run towards greatness. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
+###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " All those eyes that gaze at me, I'll be the star I claimed to be. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
 
 </div>
 <div align="center">
@@ -11,7 +11,7 @@
  </div>
 
 <p align="center">
-   <img src="https://file.garden/aVs3PFllln9k2JK1/3B4613D5-96C7-4553-A84F-CE3BC3DAFA98.png"%7Bwidth=828px height=828px}/>
+   <img src="https://file.garden/aVs3PFllln9k2JK1/Untitled327_20260913005842.png"%7Bwidth=828px height=828px}/>
 </p>
 <div align="center">
 
