@@ -1,17 +1,17 @@
 <div align="center">
    
-###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " All those eyes that gaze at me, I'll be the star I claimed to be. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
+###### <img src="https://files.catbox.moe/1dkzgx.gif"/> " On this turf that I tread, I'll show you all who the strongest really is. " <img src="https://files.catbox.moe/1dkzgx.gif"/>
 
 </div>
 <div align="center">
    
 ##### the coolest ever:
-###### <a href="https://github.com/httpsfork" target="_blank">fork</a> ៸៸ <a href="https://github.com/reiningcloud" target="_blank">rei</a> ៸៸ <a href="https://github.com/afterpain" target="_blank">tissue</a> ៸៸ <a href="https://github.com/Jagstle" target="_blank">jag</a> ៸៸ <a href="https://github.com/dainkissed" target="_blank">luc</a> ៸៸ <a href="https://github.com/duxlucens" target="_blank">fayne</a> ៸៸ <a href="https://github.com/dttore" target="_blank">angel</a>
+###### <a href="https://github.com/httpsfork" target="_blank">fork</a> ៸៸ <a href="https://github.com/reiningcloud" target="_blank">rei</a> ៸៸ <a href="https://github.com/afterpain" target="_blank">tissue (rip)</a> ៸៸ <a href="https://github.com/Jagstle" target="_blank">jag</a> ៸៸ <a href="https://github.com/dainkissed" target="_blank">luc</a> ៸៸ <a href="https://github.com/duxlucens" target="_blank">fayne</a> ៸៸ <a href="https://github.com/dttore" target="_blank">angel</a>
 
  </div>
 
 <p align="center">
-   <img src="https://file.garden/aVs3PFllln9k2JK1/Untitled327_20260913005842.png"%7Bwidth=828px height=828px}/>
+   <img src="https://file.garden/aVs3PFllln9k2JK1/3B4613D5-96C7-4553-A84F-CE3BC3DAFA98.png"%7Bwidth=728px height=728px}/>
 </p>
 <div align="center">
 
