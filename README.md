@@ -15,7 +15,7 @@
 </p>
 <div align="center">
 
-   #### '   *<a href="https://mavuikaistic.carrd.co/#" target="_blank">CARRD</a>    ៸៸   <a href="https://saikyouroaring.straw.page/" target="_blank">STRAWPAGE</a>   ៸៸   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  ៸៸ '*
+   #### '   revamping intro page...   ៸៸   <a href="https://saikyouroaring.straw.page/" target="_blank">STRAWPAGE</a>   ៸៸   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  ៸៸ '*
 <p align="center">
 
 <p align="center">
