@@ -15,7 +15,7 @@
 </p>
 <div align="center">
 
-   #### '   revamping intro page...   ៸៸   <a href="https://saikyouroaring.straw.page/" target="_blank">STRAWPAGE</a>   ៸៸   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  ៸៸ '*
+   ####    <a href="https://pokkesaikyou.carrd.co/" target="_blank">CARRD</a>   ៸៸   <a href="https://saikyouroaring.straw.page/" target="_blank">STRAWPAGE</a>   ៸៸   <a href="https://mavulka.atabook.org/" target="_blank">ATABOOK</a>  ៸៸   <a href="https://arab.org/" target="_blank">DAILY CLICK</a>
 <p align="center">
 
 <p align="center">
